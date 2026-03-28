@@ -6,5 +6,7 @@
 <img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/%E2%A0%80themed.%E2%A0%80/%E2%A0%80ambler%E2%A0%80graphics.%E2%A0%80/divideram.png" alt="." width="576">
 
 [𝒶tabook](https://ssquiddling.atabook.org/)${\color{#c26d68}\textsf{𓈒}}$⠀⠀ ${\color{#c4e1cb}\textsf{ ╱ }}$ ⠀⠀[᥅entry](rentry.co/megaambler)${\color{#c26d68}\textsf{𓈒}}$
+<img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/%E2%A0%80themed.%E2%A0%80/%E2%A0%80ambler%E2%A0%80graphics.%E2%A0%80/crop.png" alt="." width="240">
+
 
 <img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/%E2%A0%80themed.%E2%A0%80/%E2%A0%80ambler%E2%A0%80graphics.%E2%A0%80/divideram.png" alt="." width="300">
