@@ -6,10 +6,9 @@
 <img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/%E2%A0%80themed.%E2%A0%80/%E2%A0%80ambler%E2%A0%80graphics.%E2%A0%80/divideram.png" alt="." width="576">
 
 </p>
-<p align="center">
-  <img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/%E2%A0%80themed.%E2%A0%80/%E2%A0%80ambler%E2%A0%80graphics.%E2%A0%80/crop.png" alt="." width="340">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Montserrat&pause=1000&color=C4E1CB&center=true&vCenter=true&random=true&width=435&lines=You+didn't+fix+yourself+properly.;What's+wrong%3F+Should+I+have+a+look%3F;But+you+can't+deny+I've+got+skill!;Oh+dear+me%2C+I'm+so+sorry." alt="Typing SVG" /></a>
   
-[𝒶tabook](https://ssquiddling.atabook.org/)${\color{#c26d68}\textsf{𓈒}}$⠀⠀ ${\color{#c4e1cb}\textsf{ ╱ }}$ ⠀⠀[᥅entry](rentry.co/megaambler)${\color{#c26d68}\textsf{𓈒}}$
+[𝒶tabook](https://ssquiddling.atabook.org/)${\color{#c26d68}\textsf{𓈒}}$⠀⠀ ${\color{#c4e1cb}\textsf{ ╱ }}$ ⠀⠀[᥅entry](rentry.co/megaambler)${\color{#c4e1cb}\textsf{𓈒}}$⠀⠀ ${\color{#c26d68}\textsf{ ╱ }}$ ⠀⠀[᥅entry]
 
 
 <img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/%E2%A0%80themed.%E2%A0%80/%E2%A0%80ambler%E2%A0%80graphics.%E2%A0%80/divideram.png" alt="." width="300">
