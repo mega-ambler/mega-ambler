@@ -1,4 +1,4 @@
-<img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/pngs./ga.png#left" width="320" align="left">
+<img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/pngs./ga.png#left" width="200" align="left">
 <table>
   <br>
   <tr>
