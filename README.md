@@ -8,6 +8,6 @@
     </td>
   </tr>
 </table>
-ㅤㅤㅤㅤㅤㅤphoenix if you see a bitch with a bad bob,
+ㅤㅤㅤㅤㅤㅤ ${\textsf{\color{#991314} phoenix}}$ if you see a bitch with a bad bob,
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthat is *NOT* me.ㅤㅤgoㅤtheㅤotherㅤway.
