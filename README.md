@@ -1,7 +1,4 @@
-<img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/pngs./ga.png#left" width="300" align="left">
-ㅤㅤㅤㅤㅤㅤㅤitㅤhurtsㅤtoㅤbeㅤsomething,
-
-ㅤ
+<img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/pngs./ga.png#left" width="320" align="left">
 <table>
   <br>
   <tr>
@@ -11,4 +8,6 @@
     </td>
   </tr>
 </table>
-ㅤㅤㅤㅤㅤㅤitsㅤworseㅤtoㅤbeㅤnothing.
+ㅤㅤㅤㅤㅤㅤphoenix if you see a bitch with a bad bob,
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthat is *NOT* me.ㅤㅤgoㅤtheㅤotherㅤway.
