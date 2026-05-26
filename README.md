@@ -1,5 +1,5 @@
 <img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/pngs./ga.png#left" width="300" align="left">
-<img src="https://komarev.com/ghpvc/?username=mega-ambler&style=for-the-badge&color=991314&label=ㅤpatients.ㅤ" alt="profile view counter" align="center">
+<img src="https://komarev.com/ghpvc/?username=mega-ambler&style=for-the-badge&color=991314&label=ㅤpatients.ㅤ" alt="profile view counter" align="center"> ㅤ 
 <table>
   <br>
   <tr>
