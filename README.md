@@ -8,6 +8,6 @@
     </td>
   </tr>
 </table>
-ㅤㅤㅤㅤㅤㅤ phoenix if you see a bitch with a bad bob,
+ㅤㅤㅤㅤㅤifㅤiㅤtoldㅤyou,ㅤyou'dㅤknowㅤhowㅤto
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthat is *NOT* me.ㅤㅤgoㅤtheㅤotherㅤway.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤgoㅤ&ㅤbreakㅤmyㅤheartㅤinㅤtwo.
