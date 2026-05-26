@@ -10,4 +10,4 @@
 </table>
 ㅤㅤㅤㅤㅤifㅤiㅤtoldㅤyou,ㅤyou'dㅤknowㅤhowㅤto
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤgoㅤ&ㅤbreakㅤmyㅤheartㅤinㅤtwo.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤgoㅤ﹠ㅤbreakㅤmyㅤheartㅤinㅤtwo.
