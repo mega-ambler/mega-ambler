@@ -11,8 +11,6 @@
     </td>
   </tr>
 </table>
-ㅤㅤㅤㅤㅤifㅤiㅤtoldㅤ𝘺𝘰𝘶,ㅤyou'dㅤknowㅤhowㅤto
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤgoㅤ﹠ㅤbreakㅤmyㅤheartㅤinㅤt͟w͟o͟.
+ㅤㅤㅤㅤㅤgithub remaking in works
 
 ㅤ
