@@ -1,16 +1,31 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<img src=https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/pngs./githubmeam.png width="245" align="left"> 
 
-<img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/pngs./ga.png#left" width="300" align="left">
-<img src="https://komarev.com/ghpvc/?username=mega-ambler&base=570&style=for-the-badge&color=991314&label=ㅤpatients.ㅤ" alt="profile view counter" align="center"> ㅤ 
-<table>
-  <br>
-  <tr>
-    <td>
-      <img src="https://file.garden/ZyYGiT3zyA44l0Fz/%E2%A0%80my%E2%A0%80graphics.%E2%A0%80/%E2%A0%80gifs.%E2%A0%80/THATSHOULJDBEME-ezgif.com-effects%20(1).gif" width="450">
-      <br>
+
+<br>  
+  <table>
+    <tr>
+      <td>
+      ${\textsf{\color{#93060c} if you spit on it,}}$
+         
+            ${\textsf{\color{#420203} it'll heal. }}$
+              <br>
     </td>
   </tr>
 </table>
-ㅤㅤㅤㅤㅤgithub remaking in works
+<img src="https://komarev.com/ghpvc/?username=mega-ambler&base=570&style=plastic&color=991314&label=ㅤㅤpatients.ㅤㅤ" alt="profile view counter" align="center"> ㅤㅤㅤㅤv͟i͟c͟.ㅤᵒᵘㅤdxisy
 
-ㅤ
+ㅤ ㅤㅤㅤㅤㅤㅤㅤ[𝓇entry](https://rentry.co/megaambler)ㅤㅤ⅋ㅤㅤ[𝒶ta](https://ssquiddling.atabook.org/)
+
+
+
+<br>  
+  <table>
+    <tr>
+      <td>
+      ${\textsf{\color{#420203} the unlicensed doc ;}}$
+         
+            ${\textsf{\color{#93060c} the scornful}}$
+              <br>
+    </td>
+  </tr>
+</table>
