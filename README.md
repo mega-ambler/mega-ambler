@@ -14,7 +14,7 @@
 </table>
 <img src="https://komarev.com/ghpvc/?username=mega-ambler&base=570&style=plastic&color=991314&label=ㅤㅤpatients.ㅤㅤ" alt="profile view counter" align="center"> ㅤㅤㅤㅤv͟i͟c͟.ㅤᵒᵘㅤdxisy
 
-ㅤ ㅤㅤㅤㅤㅤㅤㅤ[𝓇entry](https://rentry.co/megaambler)ㅤㅤ⅋ㅤㅤ[𝒶ta](https://ssquiddling.atabook.org/)
+ㅤ ㅤㅤㅤㅤㅤㅤㅤ[𝓇entry](https://rentry.co/megaambler)ㅤㅤ⅋ㅤㅤ[𝒶ta](https://megaambler.atabook.org/)
 
 
 
