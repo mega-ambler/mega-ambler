@@ -7,7 +7,7 @@
       <td>
       ${\textsf{\color{#93060c} if you spit on it,}}$
          
-            ${\textsf{\color{#420203} it'll heal. }}$
+            ${\textsf{\color{#3c4356} it'll heal. }}$
               <br>
     </td>
   </tr>
@@ -22,7 +22,7 @@
   <table>
     <tr>
       <td>
-      ${\textsf{\color{#420203} the unlicensed doc ;}}$
+      ${\textsf{\color{#3c4356} the unlicensed doc ;}}$
          
             ${\textsf{\color{#93060c} the scornful}}$
               <br>
