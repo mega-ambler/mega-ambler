@@ -34,3 +34,8 @@
   <summary> ${\textsf{\color{#3c4356}  ℘}}$ ${\textsf{\color{#93060c}  other accounts. }}$ </summary><br>
          <a href="https://github.com/squiddling">@squiddling</a>, <a href="https://github.com/Averythemost">@Averythemost</a>, <a href="https://github.com/CAPTAlN-RED">@CAPTAlN-RED</a>      ${\textsf{\color{#93060c}✚ }}$ <br>
  </details>
+  <details>
+  <summary> ${\textsf{\color{#93060c}  ✚}}$ ${\textsf{\color{#3c4356}  thank you! }}$ </summary><br>
+         <a href="https://github.com/fans-town">@fans-town</a> ꕀ ${\textsf{\color{#93060c} mega ambler𝄒s }}$ biggest fan      ${\textsf{\color{#3c4356}❞ }}$ <br>
+ </details>
+
