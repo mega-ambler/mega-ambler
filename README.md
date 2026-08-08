@@ -36,6 +36,5 @@
  </details>
   <details>
   <summary> ${\textsf{\color{#93060c}  ✚}}$ ${\textsf{\color{#3c4356}  thank you! }}$ </summary><br>
-         <a href="https://github.com/fans-town">@fans-town</a> ꕀ ${\textsf{\color{#93060c} mega ambler𝄒s }}$ biggest fan      ${\textsf{\color{#3c4356}❞ }}$ <br>
+         <a href="https://github.com/fans-town">@fans-town</a> ꕀ ${\textsf{\color{#93060c} mega ambler𝄒s }}$ biggest fan      ${\textsf{\color{#3c4356}❞ }}$ <br>     <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a> ꕀ ${\textsf{\color{#93060c} prettiest ponies }}$ ${\textsf{\color{#3c4356}﹠}}$ pt's mega ambler      ${\textsf{\color{#3c4356}❞ }}$ <br>
  </details>
-
