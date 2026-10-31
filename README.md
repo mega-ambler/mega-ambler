@@ -12,9 +12,9 @@
     </td>
   </tr>
 </table>
-<img src="https://komarev.com/ghpvc/?username=mega-ambler&base=570&style=plastic&color=991314&label=ㅤㅤpatients.ㅤㅤ" alt="profile view counter" align="center"> ㅤㅤㅤㅤv͟i͟c͟.ㅤᵒᵘㅤdxisy
+<img src="https://komarev.com/ghpvc/?username=mega-ambler&base=570&style=plastic&color=991314&label=ㅤㅤpatients.ㅤㅤ" alt="profile view counter" align="center"> ㅤㅤㅤㅤv͟i͟c͟.ㅤᵒᵘㅤ𝐝xisy
 
-ㅤ ㅤㅤㅤㅤㅤㅤㅤ[𝓇entry](https://rentry.co/megaambler)ㅤㅤ⅋ㅤㅤ[𝒶ta](https://megaambler.atabook.org/)
+ㅤ ㅤㅤㅤㅤㅤㅤㅤ[𝐫entry I](https://rentry.co/megaambler)ㅤㅤ⅋ㅤㅤ[𝐫entry II](https://rentry.co/pcrcelain)
 
 
 
